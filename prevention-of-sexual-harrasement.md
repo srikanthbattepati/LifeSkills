@@ -15,4 +15,15 @@
 
 ### What would you do in case you face or witness any incident or repeated incidents of such behaviour?
 
+I would take the following steps if in case I face or witness incidents of sexual harassement.
+
+* I would make sure that some kind of harrasement is ongoing before taking any further steps.
+* I would suggest the person causing sexual harassement to stop the behaviour once or a couple of times.
+* If it still repeats I would contact any of my team members or the respective incharges.
+* I would also take the measure of lodging a police complaint if the incident is serious and is not controlled.
+* I would collectproof throughout the process so that it wouldn't be just an innuendo.
+
+
+
+
 
